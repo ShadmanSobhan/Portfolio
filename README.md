@@ -13,4 +13,4 @@ You can explore detailed information about my academic work, ongoing research, a
 - **Email:** shadmansobhan@gmail.com  
 - **LinkedIn:** [linkedin.com/in/shadman-sobhan](https://linkedin.com/in/shadman-sobhan)  
 - **GitHub:** [github.com/shadmansobhan](https://github.com/shadmansobhan)  
-- **Phone:** +8801521438380
+- **Phone:** +8801795090165
